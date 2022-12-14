@@ -1,2 +1,1 @@
-# amongus
- yes
+new to github wtf do i do
