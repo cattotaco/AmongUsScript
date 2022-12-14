@@ -1,1 +1,1 @@
-new to github wtf do i do
+MAN IM JUST DUMB LOL XDDDD I FIGURED IT OUT
