@@ -1,1 +1,1 @@
-MAN IM JUST DUMB LOL XDDDD I FIGURED IT OUT
+hi, this script turns ur avatar into among us!!!!
